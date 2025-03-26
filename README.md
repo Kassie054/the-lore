@@ -805,6 +805,7 @@ Captain Astrid stood on the bridge, gazing out at the stars, feeling the weight 
 
 The Alcazar sailed forward, one ship, one mission, propelled by humanity's unrelenting drive. It was more than just a vessel it was hope forged from steel and determination, a bold testament that no matter how fragmented, humanity would continue to reach, to adapt, and to strive. And in the boundless universe, they would leave their mark, even if it took a thousand journeys, one star at a time.
 
+
 # Shadows of the Elgem 1
 
 The galaxy sprawled in a dissonance of power struggles, with nations clashing for dominance over planets, resources, and prestige. Amidst the grand machinations of the Galactic Federation, there existed a race that glided silently through the stars, the Elgem.
